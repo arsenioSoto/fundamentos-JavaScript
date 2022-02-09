@@ -7,4 +7,4 @@ Caso você queira receber as últimas novidades no universo de Pregramacao web c
 
 Tem dúvidas sobre o código? Entre em contacto [**Comigo** email, whatsap:](programacao.codigos@gmail.com e tire suas dúvidas :)
 
-[**Comigo** whatsap:]https://wa.me/+258 845072619
+[**Comigo** whatsap:]https://wa.me/+258845072619
